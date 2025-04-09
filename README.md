@@ -5,7 +5,7 @@
 **>>> Mens boligverdien er viktig, er din personlige kredittscore avgjørende når du skal finansiere eller refinansiere boligen.**
 Sjekk din kredittscore og se hvilke lånemuligheter du har, uavhengig av boligens verdi:
 
-**[➡️ Sjekk din kredittscore og se lånetilbud her!](https://adtr.co/oeswcz)**
+**[➡️ Sjekk din boligverdi og se lånetilbud her!](https://adtr.co/oeswcz)**
 
 ---
 
@@ -37,4 +37,4 @@ Derfor er det lurt å ha kontroll på begge deler.
 
 **Sjekk den andre viktige faktoren for boligfinansiering – din kredittscore og lånemuligheter:**
 
-**[➡️ Få oversikt: Sjekk din kredittscore og sammenlign lån her!](https://adtr.co/oeswcz)**
+**[➡️ Få oversikt: Sjekk din boligvderdi og sammenlign lån her!](https://adtr.co/oeswcz)**
